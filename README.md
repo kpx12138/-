@@ -26,3 +26,7 @@
 ## 水污染治理
 这部分内容还要找
 
+
+###### 研究单位：顺鑫控股集团有限公司战略投资部
+###### 研究人员：可鹏翔
+![可鹏翔](https://github.com/kpx12138/sxjk/blob/master/kepengxiang.jpg)
